@@ -8,13 +8,12 @@
  #  BYI💭
 [ᶻ 𝗓 𐰁 .ᐟ] 
 - If I'm using this GH profile (On PT) I likely don't wanna talk and I most definitely woke up from a long sleep or nap
-- Yes, C + H is still welcomed and encourage, but ONLY if we're friends. Don't expect me to engage in much coversations though.
+- Yes, C + H is still welcomed and encourage, but ONLY if we're friends. Don't expect me to engage in much coversations though. ( ⸝⸝´꒳`⸝⸝)
 - I'll only interact if we're close
-- Green name ≠ close so dont expect me to engage in any conversation if you approach me just bcs I'm on your friend list
-  > at most, I'll use the nod and shake head action as my response or if I feel like it, emojis
+- Green name ≠ close so dont expect me to engage in any conversation if you approach me just bcs I'm on your friend list (ᵕ—ᴗ—)
 - sorry, im probably in a mood if I use this acc and don't feel like talking (ᗒᗣᗕ)՞
-- ALWAYS whisper to interact!! I'm lakely afk or off tab and won't see your message right away!
-> I usually get over my bad mood pretty quick tho, so just be patient and interact w caution and care w me, thanks! ( ⸝⸝´꒳`⸝⸝)
+- ALWAYS whisper to interact!! I'm likely afk or off tab and won't see your message right away!
+> I usually get over my bad mood pretty quick tho, so just be patient and interact w caution and care w me, thanks! (˶˃⤙˂˶)
 
 
 .˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
